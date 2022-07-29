@@ -1,2 +1,2 @@
-Hi there! My name is Nicolás 
+Hi there 👋 My name is Nicolás
 
